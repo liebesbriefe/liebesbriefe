@@ -3,7 +3,7 @@
 
 <img width="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/f255eb93-2e03-4847-adc4-ae93032c0526" />
 
- ㅤㅤㅤㅤ[pronouns](https://pronouns.cc/@strawberryecstasy)ㅤ ㅤㅤㅤ[letterboxd](https://boxd.it/npfsH)
+ ㅤㅤㅤㅤ[pronouns](https://pronouns.cc/@beepboop)ㅤ ㅤㅤㅤ[letterboxd](https://boxd.it/npfsH)
 
 <img width="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/83520983-4bdd-4833-86cc-64d949ca8c1c" />
 
